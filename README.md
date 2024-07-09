@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @Azamjon
+- 👋 Hi, I’m @A'zamjon
 
